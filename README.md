@@ -1,0 +1,2 @@
+# Gaming
+Compra de computadoras.
